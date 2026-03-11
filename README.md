@@ -1,0 +1,2 @@
+# Resolu-oDeConflitos-
+solucionando conflitos 
